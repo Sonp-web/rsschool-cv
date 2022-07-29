@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Sonp-web.github.io/rsschool-cv/cv
